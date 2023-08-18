@@ -1,1 +1,1 @@
-http://www.hasanyasar07.github.io
+www.hasanyasar07.github.io
